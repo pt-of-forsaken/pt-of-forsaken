@@ -10,7 +10,12 @@ there is only one person doing this account, so please be patient because I can 
 <div align=center > [created: 09/13/26]
 
 ───────── ships ─────────
-  
+</p>
+<a href="https://github.com/galacticlegendd"> @galacticlegendd </a>: #1 Frozenpizza shipper(。=｀ω´=)
+</p>
+</p>
+<a href="https://github.com/Jeverus"> @Jeverus </a>: #1 Slasher1337 shipper&fan(´ω`) 
+</p>
 ───────── ♡♡♡♡ ─────────
 
 </p>
