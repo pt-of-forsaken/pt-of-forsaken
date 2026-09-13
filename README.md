@@ -12,3 +12,13 @@ there is only one person doing this account, so please be patient because I can 
 </p>
 <a href="https://github.com/twottimey"> @twottimey </a>:  pts two time! 
 </p>
+</p>
+<a href="https://github.com/carcrashxoxo"> @carcrashxoxo </a>:  pts azure >_< 
+</p>
+</p>
+<a href="https://github.com/SONNELLINOENTHUSIAST"> @SONNELLINOENTHUSIAST </a>: pts mafioso ^_^
+</p>
+</p>
+<a href="https://github.com/Jeverus"> @Jeverus </a>:  pts Slasher 0_0 
+</p>
+
