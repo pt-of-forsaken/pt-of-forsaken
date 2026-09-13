@@ -3,7 +3,8 @@
 
 
 <div align=center>
-  Hello! welcome to my forsaken nomination account, this is inspired by the other nominations and by <a href="https://github.com/forsakentown"> @forsakentown </a> !! i am only doing forsaken characters or/and ships and au characters(ex: 2p chars, killer!character  etc) :)
+  Hello! welcome to my forsaken nomination account, this is inspired by the other nominations and by <a href="https://github.com/forsakentown"> @forsakentown </a> !! i am only doing forsaken characters or/and ships and etc, strawpage has more info!
 </p>
 </div>
-there is only one person doing this, so please be patient because I can be busy/slow.
+there is only one person doing this account, so please be patient because I can be busy/slow.
+<div align=center > [created: 09/13/26]
