@@ -29,10 +29,12 @@ there is only one person doing this account, so please be patient because I can 
 <a href="https://github.com/Gamblersi"> @Gamblersi </a>:  ponytowns Chance (*´ω`*)
 </p>
 </p>
-<a href="https://github.com/itrap-2245"> @itrap-2245 </a>: ponytowns itrapped (๑•ᴗ•๑)♡
+<a href="https://github.com/itrap-2245"> @itrap-2245 </a>: ponytowns Itrapped (๑•ᴗ•๑)♡
 </p>
-
+</p>
+<a href="https://github.com/sea-shantyyy"> @sea-shantyyy </a>:  ponytowns Shedletsky(♡´▽`♡) 
+</p>
 ───────── ♡♡♡♡ ─────────
 </p>
-<a href="https://github.com/planetlordd"> @planetlordd  </a>:  planet lord of ponytown. (this is a forsaken account, but i'll add you cause I am nice.)
+<a href="https://github.com/planetlordd"> @planetlordd  </a>:  planet lord of ponytown. (this is a forsaken account, but i'll add you cause I am nice and I was following random accounts)
 </p>
