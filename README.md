@@ -18,7 +18,7 @@ there is only one person doing this account, so please be patient because I can 
 <a href="https://github.com/Jeverus"> @Jeverus </a>: #1 Slasher1337 shipper&fan(´ω`) 
 </p>
 </p>
-<a href="https://github.com/Gamblersi"> @Gamblersi </a>: #1 Doublefedora (↑ω↑) 
+<a href="https://github.com/Gamblersi"> @Gamblersi </a>: #1 Doublefedora shipper (↑ω↑) 
 </p>
 ───────── ♡♡♡♡ ─────────
 
