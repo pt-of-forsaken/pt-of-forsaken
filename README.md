@@ -20,6 +20,9 @@ there is only one person doing this account, so please be patient because I can 
 </p>
 <a href="https://github.com/Gamblersi"> @Gamblersi </a>: #1 Doublefedora shipper (↑ω↑) 
 </p>
+</p>
+<a href="https://github.com/Flowersan02"> @Flowersan02 </a>: #1 Fedorapizzashades shipper(＾-＾)
+</p>
 ───────── ♡♡♡♡ ─────────
 
 </p>
@@ -57,6 +60,9 @@ there is only one person doing this account, so please be patient because I can 
 </p>
 </p>
 <a href="https://github.com/viimsey"> @viimsey </a>:   ppnytowns John doe (=0_0=)
+</p>
+</p>
+<a href="https://github.com/Flowersan02"> @Flowersan02 </a>: ponytowns Elliot (^o^)
 </p>
 ───────── ♡♡♡♡ ─────────
 </p>
