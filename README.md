@@ -46,6 +46,9 @@ there is only one person doing this account, so please be patient because I can 
 </p>
 <a href="https://github.com/lovingl3tters"> @lovingl3tters </a>: ponytowns CaporgimeΣ(･o･;)  
 </p>
+</p>
+<a href="https://github.com/N0ISEMAKER"> @N0ISEMAKER </a>:   ponytowns Consigliere(•ˋ _ ˊ•)
+</p>
 ───────── ♡♡♡♡ ─────────
 </p>
 <a href="https://github.com/planetlordd"> @planetlordd  </a>:  planet lord of ponytown. (this is a forsaken account, but i'll add you cause I feel bad and I was following random accounts without checking >_<)
