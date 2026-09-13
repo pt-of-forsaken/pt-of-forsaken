@@ -59,7 +59,7 @@ there is only one person doing this account, so please be patient because I can 
 <a href="https://github.com/aspenolia"> @aspenolia </a>: ponytowns pre-forsaken Aspen(=^_^=)
 </p>
 </p>
-<a href="https://github.com/viimsey"> @viimsey </a>:   ppnytowns John doe (=0_0=)
+<a href="https://github.com/viimsey"> @viimsey </a>:   ponytowns John doe (=0_0=)
 </p>
 </p>
 <a href="https://github.com/Flowersan02"> @Flowersan02 </a>: ponytowns Elliot (^o^)
