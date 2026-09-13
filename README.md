@@ -9,7 +9,7 @@
 there is only one person doing this account, so please be patient because I can be busy/slow.
 <div align=center > [created: 09/13/26]
 
-───────── ♡♡♡♡ ─────────
+───────── ships ─────────
   
 ───────── ♡♡♡♡ ─────────
 
@@ -34,7 +34,10 @@ there is only one person doing this account, so please be patient because I can 
 </p>
 <a href="https://github.com/sea-shantyyy"> @sea-shantyyy </a>:  ponytowns Shedletsky(♡´▽`♡) 
 </p>
+</p>
+<a href="https://github.com/dr-vanta"> @dr-vanta </a>:  Ponytowns soilder ꉂ(ˊᗜˋ*)♡
+</p>
 ───────── ♡♡♡♡ ─────────
 </p>
-<a href="https://github.com/planetlordd"> @planetlordd  </a>:  planet lord of ponytown. (this is a forsaken account, but i'll add you cause I am nice and I was following random accounts)
+<a href="https://github.com/planetlordd"> @planetlordd  </a>:  planet lord of ponytown. (this is a forsaken account, but i'll add you cause I feel bad and I was following random accounts without checking >_<)
 </p>
