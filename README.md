@@ -29,3 +29,7 @@ there is only one person doing this account, so please be patient because I can 
 <a href="https://github.com/Gamblersi"> @Gamblersi </a>:  ponytowns Chance (*´ω`*)
 </p>
 
+───────── ♡♡♡♡ ─────────
+</p>
+<a href="https://github.com/planetlordd"> @pt-heavyfictkin </a>:  planet lord of ponytown. (this is a forsaken account, but i'll add you cause I am nice.)
+</p>
