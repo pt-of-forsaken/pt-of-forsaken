@@ -35,7 +35,7 @@ there is only one person doing this account, so please be patient because I can 
 <a href="https://github.com/sea-shantyyy"> @sea-shantyyy </a>:  ponytowns Shedletsky(♡´▽`♡) 
 </p>
 </p>
-<a href="https://github.com/dr-vanta"> @dr-vanta </a>:  Ponytowns soilder ꉂ(ˊᗜˋ*)♡
+<a href="https://github.com/dr-vanta"> @dr-vanta </a>:  Ponytowns soldier ꉂ(ˊᗜˋ*)♡
 </p>
 ───────── ♡♡♡♡ ─────────
 </p>
