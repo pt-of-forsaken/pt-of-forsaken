@@ -21,4 +21,7 @@ there is only one person doing this account, so please be patient because I can 
 </p>
 <a href="https://github.com/Jeverus"> @Jeverus </a>:  pts Slasher 0_0 
 </p>
+</p>
+<a href="https://github.com/Gamblersi"> @Gamblersi </a>:  pts chance :3 
+</p>
 
