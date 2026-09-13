@@ -3,4 +3,4 @@
 
 
 <div align=center>
-  hello! welcome to my forsaken nomination account, this is inspired by the other nominations and by <a href="https://github.com/forsakentown"> @forsakentown </a> !! i am only doing forsaken characters or/and ships and au characters, for some variations :)
+  Hello! welcome to my forsaken nomination account, this is inspired by the other nominations and by <a href="https://github.com/forsakentown"> @forsakentown </a> !! i am only doing forsaken characters or/and ships and au characters(ex: 2p chars, killer!character  etc) :)
