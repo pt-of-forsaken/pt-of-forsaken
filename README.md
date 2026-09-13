@@ -10,18 +10,18 @@ there is only one person doing this account, so please be patient because I can 
 <div align=center > [created: 09/13/26]
 
 </p>
-<a href="https://github.com/twottimey"> @twottimey </a>:  pts two time! 
+<a href="https://github.com/twottimey"> @twottimey </a>:  ponytowns Two Time (≡^∇^≡)
 </p>
 </p>
-<a href="https://github.com/carcrashxoxo"> @carcrashxoxo </a>:  pts azure >_< 
+<a href="https://github.com/carcrashxoxo"> @carcrashxoxo </a>:  ponytowns Azure (❁´◡`❁) 
 </p>
 </p>
-<a href="https://github.com/SONNELLINOENTHUSIAST"> @SONNELLINOENTHUSIAST </a>: pts mafioso ^_^
+<a href="https://github.com/SONNELLINOENTHUSIAST"> @SONNELLINOENTHUSIAST </a>: ponytowns Mafioso ˙˚ʚ(´◡`)ɞ˚˙
 </p>
 </p>
-<a href="https://github.com/Jeverus"> @Jeverus </a>:  pts Slasher 0_0 
+<a href="https://github.com/Jeverus"> @Jeverus </a>:  ponytowns Slasher (〃ﾟ3ﾟ〃)
 </p>
 </p>
-<a href="https://github.com/Gamblersi"> @Gamblersi </a>:  pts chance :3 
+<a href="https://github.com/Gamblersi"> @Gamblersi </a>:  ponytowns Chance (*´ω`*)
 </p>
 
