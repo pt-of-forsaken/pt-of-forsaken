@@ -64,6 +64,9 @@ there is only one person doing this account, so please be patient because I can 
 </p>
 <a href="https://github.com/Flowersan02"> @Flowersan02 </a>: ponytowns Elliot (^o^)
 </p>
+</p>
+<a href="https://github.com/Blame-John"> @Blame-John </a>:   Ponytowns Telamon (v_v)
+</p>
 ───────── ♡♡♡♡ ─────────
 </p>
 <a href="https://github.com/planetlordd"> @planetlordd  </a>:  planet lord of ponytown. (this is a forsaken account, but i'll add you cause I feel bad and I was following random accounts without checking >_<)
