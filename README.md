@@ -4,7 +4,7 @@
 
 <div align=center>
   Hello! welcome to my forsaken nomination account, this is inspired by the other nominations accounts and by <a href="https://github.com/forsakentown"> @forsakentown </a> !! i am only doing forsaken characters or/and ships and etc, strawpage has more info! 
-There is only one person updating this account, so please be patient because I can be busy/slow.
+There is only one person updating this account, so please be patient because I can be busy/slow and I have school..
 <div align=center > [created: 09/13/26] [updated: 09/13/26]
 </p>
 </div>
@@ -25,6 +25,12 @@ There is only one person updating this account, so please be patient because I c
 </p>
 </p>
 <a href="https://github.com/mandela-net"> @mandela-net </a>: #1 Toughluck shipper(´^ω^`)
+</p>
+</p>
+<a href="https://github.com/itrap-2245"> @itrap-2245, <a href="https://github.com/SONNELLINOENTHUSIAST"> @SONNELLINOENTHUSIAST </a>: are #1 frozendebt shipper. 
+  </p>
+<a href="https://github.com/kniferrific"> @kniferrific </a>:  is 1xdoe biggest fan. 
+</p>
 </p>
 ───────── ♡♡♡♡ ─────────
 
