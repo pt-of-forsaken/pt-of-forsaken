@@ -36,6 +36,9 @@ There is only one person updating this account, so please be patient because I c
   </p>
 <a href="https://github.com/angeIist"> @angeIist </a>: #1 stabbed duo(AzurexChance)\(^0^)/  
 </p>
+</p>
+<a href="https://github.com/TheHacker7n7"> @TheHacker7n7 </a>: #1 Noli7n7 shipper (^_^)
+</p>
 ───────── ♡♡♡♡ ─────────
 
 </p>
