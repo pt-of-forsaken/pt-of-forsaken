@@ -83,7 +83,7 @@ There is only one person updating this account, so please be patient because I c
 <a href="https://github.com/FLORAISONS"> @FLORAISONS </a>: ponytowns (◍•ᴗ•◍)
 </p>
 </p>
-<a href="https://github.com/andreslopper"> @andreslopper </a>: ponytowns VCoolkidd(≧∇≦)/  
+<a href="https://github.com/andreslopper"> @andreslopper </a>: ponytowns Veronica (≧∇≦)/  
 </p>
 </p>
 <a href="https://github.com/OHBUNNYBUNNY"> @OHBUNNYBUNNY </a>:ponytowns Coolkidd(≡^∇^≡)
