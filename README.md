@@ -1,13 +1,13 @@
-  <img src="https://files.catbox.moe/7rh1hi.gif" alt="forsaken" width="600">
+<div align=center>  <img src="https://files.catbox.moe/7rh1hi.gif" alt="forsaken" width="600">
 </p>
 
 
 <div align=center>
   Hello! welcome to my forsaken nomination account, this is inspired by the other nominations accounts and by <a href="https://github.com/forsakentown"> @forsakentown </a> !! i am only doing forsaken characters or/and ships and etc, strawpage has more info! 
+There is only one person updating this account, so please be patient because I can be busy/slow.
+<div align=center > [created: 09/13/26] [updated: 09/13/26]
 </p>
 </div>
-there is only one person doing this account, so please be patient because I can be busy/slow.
-<div align=center > [created: 09/13/26] [updated: 09/13/26]
 
 ───────── ships ─────────
 </p>
@@ -22,6 +22,9 @@ there is only one person doing this account, so please be patient because I can 
 </p>
 </p>
 <a href="https://github.com/Flowersan02"> @Flowersan02 </a>: #1 Fedorapizzashades shipper(＾-＾)
+</p>
+</p>
+<a href="https://github.com/mandela-net"> @mandela-net </a>: #1 Toughluck shipper(´^ω^`)
 </p>
 ───────── ♡♡♡♡ ─────────
 
@@ -66,6 +69,9 @@ there is only one person doing this account, so please be patient because I can 
 </p>
 </p>
 <a href="https://github.com/Blame-John"> @Blame-John </a>:   Ponytowns Telamon (v_v)
+</p>
+</p>
+<a href="https://github.com/mandela-net"> @mandela-net </a>: ponytowns Killer!Chance(*´꒳`*)
 </p>
 ───────── ♡♡♡♡ ─────────
 </p>
