@@ -23,7 +23,7 @@ There is only one person updating this account, so please be patient because I c
 <a href="https://github.com/Gamblersi"> @Gamblersi </a>: #1 Doublefedora shipper (↑ω↑) 
 </p>
 </p>
-<a href="https://github.com/Flowersan02"> @Flowersan02 </a>: #1 Fedorapizzashades shipper(＾-＾)
+<a href="https://github.com/Flowersan02"> @Flowersan02 </a>: #1 Fedorapizzashades shipper(MafxElliotxCaporegime)(＾-＾)
 </p>
 </p>
 <a href="https://github.com/mandela-net"> @mandela-net </a>: #1 Toughluck shipper(´^ω^`)
