@@ -33,6 +33,8 @@ There is only one person updating this account, so please be patient because I c
   </p>
 <a href="https://github.com/kniferrific"> @kniferrific </a>:  is 1xdoe biggest fan（｡>‿‿<｡ ） 
 </p>
+  </p>
+<a href="https://github.com/angeIist"> @angeIist </a>: #1 stabbed duo(AzurexChance)   
 </p>
 ───────── ♡♡♡♡ ─────────
 
@@ -92,6 +94,9 @@ There is only one person updating this account, so please be patient because I c
 </p>
 </p>
 <a href="https://github.com/OHBUNNYBUNNY"> @OHBUNNYBUNNY </a>:ponytowns Coolkidd(≡^∇^≡)
+</p>
+</p>
+<a href="https://github.com/cnntalope"> @cnntalope </a>:ponytowns 226w6 (>_0)
 </p>
 ───────── ♡♡♡♡ ─────────
 </p>
