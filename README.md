@@ -80,7 +80,7 @@ There is only one person updating this account, so please be patient because I c
 <a href="https://github.com/mandela-net"> @mandela-net </a>: ponytowns Killer!Chance(*´꒳`*)
 </p>
 </p>
-<a href="https://github.com/FLORAISONS"> @FLORAISONS </a>: ponytowns (◍•ᴗ•◍)
+<a href="https://github.com/FLORAISONS"> @FLORAISONS </a>: ponytowns Dusekkar (◍•ᴗ•◍)
 </p>
 </p>
 <a href="https://github.com/kniferrific"> @kniferrific </a>:ponytowns (-^〇^-)
