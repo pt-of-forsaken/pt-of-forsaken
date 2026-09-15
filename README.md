@@ -29,7 +29,7 @@ There is only one person updating this account, so please be patient because I c
 <a href="https://github.com/mandela-net"> @mandela-net </a>: #1 Toughluck shipper(´^ω^`)
 </p>
 </p>
-<a href="https://github.com/itrap-2245"> @itrap-2245, <a href="https://github.com/SONNELLINOENTHUSIAST"> @SONNELLINOENTHUSIAST </a>: are #1 frozendebt shipper(^_^♪)
+<a href="https://github.com/itrap-2245"> @itrap-2245, <a href="https://github.com/SONNELLINOENTHUSIAST"> @SONNELLINOENTHUSIAST <a href="https://github.com/FROZENDEBTS"> @FROZENDEBTS </a>: are #1 frozendebt shipper(^_^♪)
   </p>
 <a href="https://github.com/kniferrific"> @kniferrific </a>:  is 1xdoe biggest fan（｡>‿‿<｡ ） 
 </p>
