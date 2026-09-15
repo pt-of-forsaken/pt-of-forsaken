@@ -54,7 +54,7 @@ There is only one person updating this account, so please be patient because I c
 <a href="https://github.com/SONNELLINOENTHUSIAST"> @SONNELLINOENTHUSIAST </a>: ponytowns Mafioso ˙˚ʚ(´◡`)ɞ˚˙
 </p>
 </p>
-<a href="https://github.com/Jeverus"> @Jeverus </a>:  ponytowns Slasher (〃ﾟ3ﾟ〃)
+<a href="https://github.com/Jeverus"> @Jeverus </a>:  ponytowns Slasher and pre-forsaken Slasher!(〃ﾟ3ﾟ〃)
 </p>
 </p>
 <a href="https://github.com/Gamblersi"> @Gamblersi </a>:  ponytowns Chance (*´ω`*)
