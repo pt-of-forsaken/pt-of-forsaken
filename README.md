@@ -5,7 +5,7 @@
 <div align=center>
   Hello! welcome to my forsaken nomination account, this is inspired by the other nominations accounts and by <a href="https://github.com/forsakentown"> @forsakentown </a> !! i am only doing forsaken characters or/and ships and etc, strawpage has more info! 
 There is only one person updating this account, so please be patient because I can be busy/slow and I have school..
-<div align=center > [created: 09/13/26] [updated: 09/15/26]
+<div align=center > [created: 09/13/26] [updated: 09/16/26]
 
   my apologies if i make any mistakes,, coding and putting everything on here gets confusing for me.
 </p>
@@ -41,6 +41,9 @@ There is only one person updating this account, so please be patient because I c
 </p>
 </p>
 <a href="https://github.com/twottimey"> @twottimey <a href="https://github.com/carcrashxoxo"> @carcrashxoxo </a>: are #1 azuretime shipper 
+</p>
+  </p>
+<a href="https://github.com/AcxerSonnellino"> @AcxerSonnellino </a>: #1 armydreamers shipper(MafxGuest1337)(❁´◡`❁)
 </p>
 ───────── ♡♡♡♡ ─────────
 
@@ -111,7 +114,10 @@ There is only one person updating this account, so please be patient because I c
 <a href="https://github.com/k-ttyfuel"> @k-ttyfuel </a>: ponytowns flowers (=0^0=)
 </p>
   </p>
-<a href="https://github.com/Cuddling-Encouraged-heavily-Dnc"> @Cuddling-Encouraged-heavily-Dnc </a>: ponytowns 1x4 
+<a href="https://github.com/Cuddling-Encouraged-heavily-Dnc"> @Cuddling-Encouraged-heavily-Dnc </a>: ponytowns 1x4(≧∇≦)/
+</p>
+  </p>
+<a href="https://github.com/AcxerSonnellino"> @AcxerSonnellino </a>: ponytowns Guest1337q(❂‿❂)p
 </p>
 ───────── ♡♡♡♡ ─────────
 </p>
