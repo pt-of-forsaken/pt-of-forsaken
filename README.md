@@ -45,6 +45,9 @@ There is only one person updating this account, so please be patient because I c
   </p>
 <a href="https://github.com/AcxerSonnellino"> @AcxerSonnellino </a>: #1 armydreamers shipper(MafxGuest1337)(❁´◡`❁)
 </p>
+  </p>
+<a href="https://github.com/777gamblr"> @777gamblr </a>:  pts mafioso yume >_<
+</p>
 ───────── ♡♡♡♡ ─────────
 
 </p>
@@ -123,3 +126,4 @@ There is only one person updating this account, so please be patient because I c
 </p>
 <a href="https://github.com/planetlordd"> @planetlordd  </a>:  planet lord of ponytown. (this is a forsaken account, but i'll add you cause I feel bad and I was following random accounts without checking >_<)
 </p>
+
