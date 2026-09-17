@@ -26,7 +26,7 @@ There is only one person updating this account, so please be patient because I c
 <a href="https://github.com/Flowersan02"> @Flowersan02 </a>: #1 Fedorapizzashades shipper(MafxElliotxCaporegime)(＾-＾)
 </p>
 </p>
-<a href="https://github.com/lovingl3tters"> @luckyburger </a>: #2 fedorapizzashades shipper (MafxElliotxCaporegime)☆(ﾉ◕ヮ◕)ﾉ*  
+<a href="https://github.com/lovingl3tters"> @lovingl3tters</a>: #2 fedorapizzashades shipper (MafxElliotxCaporegime)☆(ﾉ◕ヮ◕)ﾉ*  
 </p>
 </p>
 <a href="https://github.com/mandela-net"> @mandela-net </a>: #1 Toughluck shipper(´^ω^`)
