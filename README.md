@@ -26,6 +26,9 @@ There is only one person updating this account, so please be patient because I c
 <a href="https://github.com/Flowersan02"> @Flowersan02 </a>: #1 Fedorapizzashades shipper(MafxElliotxCaporegime)(＾-＾)
 </p>
 </p>
+<a href="https://github.com/lovingl3tters"> @luckyburger </a>: #2 fedorapizzashades shipper (MafxElliotxCaporegime)☆(ﾉ◕ヮ◕)ﾉ*  
+</p>
+</p>
 <a href="https://github.com/mandela-net"> @mandela-net </a>: #1 Toughluck shipper(´^ω^`)
 </p>
 </p>
@@ -40,13 +43,16 @@ There is only one person updating this account, so please be patient because I c
 <a href="https://github.com/TheHacker7n7"> @TheHacker7n7 </a>: #1 Noli7n7 shipper (^_^)
 </p>
 </p>
-<a href="https://github.com/twottimey"> @twottimey <a href="https://github.com/carcrashxoxo"> @carcrashxoxo </a>: are #1 azuretime shipper 
+<a href="https://github.com/twottimey"> @twottimey <a href="https://github.com/carcrashxoxo"> @carcrashxoxo </a>: are #1 azuretime shipper o(〃＾▽＾〃)o
 </p>
   </p>
 <a href="https://github.com/AcxerSonnellino"> @AcxerSonnellino </a>: #1 armydreamers shipper(MafxGuest1337)(❁´◡`❁)
 </p>
   </p>
 <a href="https://github.com/777gamblr"> @777gamblr </a>:  pts mafioso yume >_<
+</p>
+  </p>
+<a href="https://github.com/monachgrievings"> @monachgrievings </a>: #1 luckyburger ヾ(＾-＾)ノ  
 </p>
 ───────── ♡♡♡♡ ─────────
 
@@ -121,6 +127,9 @@ There is only one person updating this account, so please be patient because I c
 </p>
   </p>
 <a href="https://github.com/AcxerSonnellino"> @AcxerSonnellino </a>: ponytowns Guest1337q(❂‿❂)p
+</p>
+  </p>
+<a href="https://github.com/monachgrievings"> @monachgrievings </a>: ponytowns Spectre˙˚ʚ(´◡`)ɞ˚˙
 </p>
 ───────── ♡♡♡♡ ─────────
 </p>
