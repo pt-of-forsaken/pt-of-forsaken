@@ -52,7 +52,7 @@ There is only one person updating this account, so please be patient because I c
 <a href="https://github.com/777gamblr"> @777gamblr </a>:  pts mafioso yume >_<
 </p>
   </p>
-<a href="https://github.com/monachgrievings"> @monachgrievings </a>: #1 luckyburger ヾ(＾-＾)ノ  
+<a href="https://github.com/monachgrievings"> @monachgrievings </a>: #1 luckyburger shipperヾ(＾-＾)ノ  
 </p>
 ───────── ♡♡♡♡ ─────────
 
