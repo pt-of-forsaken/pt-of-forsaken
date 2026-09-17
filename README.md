@@ -9,6 +9,7 @@ There is only one person updating this account, so please be patient because I c
 
   my apologies if i make any mistakes,, coding and putting everything on here gets confusing for me.
 </p>
+I will be putting everyone in alphabetical order when I have the chance.
 </div>
 
 ───────── ships ─────────
