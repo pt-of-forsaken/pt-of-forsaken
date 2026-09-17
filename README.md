@@ -5,7 +5,7 @@
 <div align=center>
   Hello! welcome to my forsaken nomination account, this is inspired by the other nominations accounts and by <a href="https://github.com/forsakentown"> @forsakentown </a> !! i am only doing forsaken characters or/and ships and etc, strawpage has more info! 
 There is only one person updating this account, so please be patient because I can be busy/slow and I have school..
-<div align=center > [created: 09/13/26] [updated: 09/16/26]
+<div align=center > [created: 09/13/26] [updated: 09/17/26]
 
   my apologies if i make any mistakes,, coding and putting everything on here gets confusing for me.
 </p>
@@ -53,6 +53,9 @@ There is only one person updating this account, so please be patient because I c
 </p>
   </p>
 <a href="https://github.com/monachgrievings"> @monachgrievings </a>: #1 luckyburger shipperヾ(＾-＾)ノ  
+</p>
+  </p>
+<a href="https://github.com/andreslopper"> @andreslopper </a>: #1novicedelivery shipper(NoobxElliot)
 </p>
 ───────── ♡♡♡♡ ─────────
 
@@ -130,6 +133,9 @@ There is only one person updating this account, so please be patient because I c
 </p>
   </p>
 <a href="https://github.com/monachgrievings"> @monachgrievings </a>: ponytowns Spectre˙˚ʚ(´◡`)ɞ˚˙
+</p>
+  </p>
+<a href="https://github.com/andreslopper"> @2020-visions </a>: ponytowns Betrayed 1x4
 </p>
 ───────── ♡♡♡♡ ─────────
 </p>
