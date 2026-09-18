@@ -139,7 +139,8 @@ I will be putting everyone in alphabetical order when I have the chance.
 <a href="https://github.com/monachgrievings"> @monachgrievings </a>: ponytowns Spectre˙˚ʚ(´◡`)ɞ˚˙
 </p>
   </p>
-<a href="https://github.com/BetrayedNotes"> @BetrayedNotes </a>: ponytowns Betrayed 1x4( ՞ ᗜ ՞ )
+<a href="https://github.com/BetrayedNotes"> @BetrayedNotes </a>: ponytowns Betrayed 1x4
+  ( ՞ ᗜ ՞ )
 </p>
 ───────── ♡♡♡♡ ─────────
 </p>
