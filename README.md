@@ -136,7 +136,7 @@ I will be putting everyone in alphabetical order when I have the chance.
 <a href="https://github.com/monachgrievings"> @monachgrievings </a>: ponytowns Spectre˙˚ʚ(´◡`)ɞ˚˙
 </p>
   </p>
-<a href="https://github.com/2020-visions"> @2020-visions </a>: ponytowns Betrayed 1x4
+<a href="https://github.com/BetrayedNotes"> @BetrayedNotes </a>: ponytowns Betrayed 1x4
 </p>
 ───────── ♡♡♡♡ ─────────
 </p>
