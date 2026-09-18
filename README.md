@@ -56,7 +56,10 @@ I will be putting everyone in alphabetical order when I have the chance.
 <a href="https://github.com/monachgrievings"> @monachgrievings </a>: #1 luckyburger shipperヾ(＾-＾)ノ  
 </p>
   </p>
-<a href="https://github.com/andreslopper"> @andreslopper </a>: #1novicedelivery shipper(NoobxElliot)
+<a href="https://github.com/andreslopper"> @andreslopper </a>: #1novicedelivery shipper(NoobxElliot)(*°∀°)
+</p>
+  </p>
+<a href="https://github.com/M1s0the"> @M1s0the </a>:  #1 Telafioso shipper(๑˃̵　ᴗ　˂̵)و
 </p>
 ───────── ♡♡♡♡ ─────────
 
@@ -136,7 +139,7 @@ I will be putting everyone in alphabetical order when I have the chance.
 <a href="https://github.com/monachgrievings"> @monachgrievings </a>: ponytowns Spectre˙˚ʚ(´◡`)ɞ˚˙
 </p>
   </p>
-<a href="https://github.com/BetrayedNotes"> @BetrayedNotes </a>: ponytowns Betrayed 1x4
+<a href="https://github.com/BetrayedNotes"> @BetrayedNotes </a>: ponytowns Betrayed 1x4( ՞ ᗜ ՞ )
 </p>
 ───────── ♡♡♡♡ ─────────
 </p>
