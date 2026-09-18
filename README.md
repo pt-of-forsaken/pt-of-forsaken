@@ -140,7 +140,7 @@ I will be putting everyone in alphabetical order when I have the chance.
 </p>
   </p>
 <a href="https://github.com/BetrayedNotes"> @BetrayedNotes </a>: ponytowns Betrayed 1x4
-  ( ՞ ᗜ ՞ )
+  (՞ ᗜ ՞)
 </p>
 ───────── ♡♡♡♡ ─────────
 </p>
