@@ -5,7 +5,7 @@
 <div align=center>
   Hello! welcome to my forsaken nomination account, this is inspired by the other nominations accounts and by <a href="https://github.com/forsakentown"> @forsakentown </a> !! i am only doing forsaken characters or/and ships and etc, strawpage has more info! 
 There is only one person updating this account, so please be patient because I can be busy/slow and I have school..
-<div align=center > [created: 09/13/26] [updated: 09/17/26]
+<div align=center > [created: 09/13/26] [updated: 09/19/26]
 
   my apologies if i make any mistakes,, coding and putting everything on here gets confusing for me.
 </p>
@@ -145,5 +145,8 @@ I will be putting everyone in alphabetical order when I have the chance.
 ───────── ♡♡♡♡ ─────────
 </p>
 <a href="https://github.com/planetlordd"> @planetlordd  </a>:  planet lord of ponytown. (this is a forsaken account, but i'll add you cause I feel bad and I was following random accounts without checking >_<)
+</p>
+</p>
+<a href="https://github.com/HeightsSwordMaster"> @HeightsSwordMaster </a>:  Shedletsky's fan!
 </p>
 
