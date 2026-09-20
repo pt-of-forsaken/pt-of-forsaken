@@ -48,7 +48,10 @@ I will be putting everyone in alphabetical order when I have the chance.
 <a href="https://github.com/monachgrievings"> @monachgrievings </a>: #1 luckyburger shipperヾ(＾-＾)ノ  
 </p>
   </p>
-<a href="https://github.com/M1s0the"> @M1s0the </a>:  #1 Telafioso shipper(๑˃̵　ᴗ　˂̵)
+<a href="https://github.com/M1s0thefox"> @M1s0thefox </a>:  #1 Telafioso shipper(๑˃̵　ᴗ　˂̵)
+  </p>
+<a href="https://github.com/seildirectory"> @seildirectory </a>: #1 charlatanxvee shipper(comedyshow)
+</p>
   </p>
 <a href="https://github.com/TheHacker7n7"> @TheHacker7n7 </a>: #1 Noli7n7 shipper (^_^)
 </p>
@@ -126,6 +129,9 @@ I will be putting everyone in alphabetical order when I have the chance.
 </p>
 </p>
 <a href="https://github.com/sea-shantyyy"> @sea-shantyyy </a>:  ponytowns Shedletsky(♡´▽`♡) 
+</p>
+  </p>
+<a href="https://github.com/seildirectory"> @seildirectory </a>: ponytowns Ringmaster
 </p>
 </p>
 <a href="https://github.com/twottimey"> @twottimey </a>:  ponytowns Two Time (≡^∇^≡)
