@@ -5,11 +5,10 @@
 <div align=center>
   Hello! welcome to my forsaken nomination account, this is inspired by the other nominations accounts and by <a href="https://github.com/forsakentown"> @forsakentown </a> !! i am only doing forsaken characters or/and ships and etc, strawpage has more info! 
 There is only one person updating this account, so please be patient because I can be busy/slow and I have school..
-<div align=center > [created: 09/13/26] [updated: 09/20/26]
+<div align=center > [created: 09/13/26] [updated: 09/25/26]
 
   my apologies if i make any mistakes,, coding and putting everything on here gets confusing for me.
 </p>
-I will be putting everyone in alphabetical order when I have the chance.
 </div>
 
 ───────── ships ─────────
@@ -22,6 +21,8 @@ I will be putting everyone in alphabetical order when I have the chance.
  </p>
 <a href="https://github.com/andreslopper"> @andreslopper </a>: #1novicedelivery shipper(NoobxElliot)(*°∀°)
 </p>
+</p>
+<a href="https://github.com/dr-vanta"> @dr-vanta </a>: #1 toughhaxxing (guest1337 x 007n7) and magicdebt (artful x mafioso) fan
 </p>
 <a href="https://github.com/Flowersan02"> @Flowersan02 </a>: #1 Fedorapizzashades shipper(MafxElliotxCaporegime)(＾-＾)
 </p>
@@ -123,6 +124,9 @@ I will be putting everyone in alphabetical order when I have the chance.
 </p>
 </p>
 <a href="https://github.com/OHBUNNYBUNNY"> @OHBUNNYBUNNY </a>:ponytowns Coolkidd(≡^∇^≡)
+</p>
+  </p>
+<a href="https://github.com/pr3typrincess"> @pr3typrincess </a>: ponytowns Pr3typriincess
 </p>
 </p>
 <a href="https://github.com/SONNELLINOENTHUSIAST"> @SONNELLINOENTHUSIAST </a>: ponytowns Mafioso ˙˚ʚ(´◡`)ɞ˚˙
