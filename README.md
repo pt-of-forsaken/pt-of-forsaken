@@ -117,6 +117,9 @@ There is only one person updating this account, so please be patient because I c
 <a href="https://github.com/lovingl3tters"> @lovingl3tters </a>: ponytowns CaporgimeΣ(･o･;)  
 </p>
 </p>
+<a href="https://github.com/L0VES1CKK"> @L0VES1CKK </a>: ponytowns Noob/Party Noob
+</p>
+</p>
 <a href="https://github.com/mandela-net"> @mandela-net </a>: ponytowns Killer!Chance(*´꒳`*)
 </p>
  </p>
