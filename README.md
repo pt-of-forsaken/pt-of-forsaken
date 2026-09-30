@@ -108,7 +108,7 @@ There is only one person updating this account, so please be patient because I c
 <a href="https://github.com/Gamblersi"> @Gamblersi </a>:  ponytowns Chance (*´ω`*)
 </p>
   </p>
-<a href="https://github.com/glistenn"> @glistenn </a>: ponytowns Buildermqn :D
+<a href="https://github.com/glistenn"> @glistenn </a>: ponytowns Builderman :D
 </p>
 </p>
 <a href="https://github.com/itrap-2245"> @itrap-2245 </a>: ponytowns Itrapped (๑•ᴗ•๑)♡
