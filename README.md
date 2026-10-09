@@ -5,7 +5,7 @@
 <div align=center>
   Hello! welcome to my forsaken nomination account, this is inspired by the other nominations accounts and by <a href="https://github.com/forsakentown"> @forsakentown </a> !! i am only doing forsaken characters or/and ships and etc, strawpage has more info! 
 There is only one person updating this account, so please be patient because I can be busy/slow and I have school..
-<div align=center > [created: 09/13/26] [updated: 10/08/26]
+<div align=center > [created: 09/13/26] [updated: 10/09/26]
 
   my apologies if i make any mistakes,, coding and putting everything on here gets confusing for me.
 </p>
@@ -20,6 +20,9 @@ There is only one person updating this account, so please be patient because I c
 </p>
  </p>
 <a href="https://github.com/andreslopper"> @andreslopper </a>: #1novicedelivery shipper(NoobxElliot)(*°∀°)
+</p>
+</p>
+<a href="https://github.com/Communicyte"> @Communicyte, <a href="https://github.com/Clinicfulloflove "> @Clinicfulloflove, <a href="https://github.com/myguiltypleasure"> @myguiltypleasure </a>: are #1 mutedpumpkin shippers!
 </p>
 </p>
 <a href="https://github.com/dr-vanta"> @dr-vanta </a>: #1 toughhaxxing (guest1337 x 007n7) and magicdebt (artful x mafioso) fan
@@ -129,7 +132,13 @@ There is only one person updating this account, so please be patient because I c
 <a href="https://github.com/L0VES1CKK"> @L0VES1CKK </a>: ponytowns Noob/Party Noob
 </p>
 </p>
+<a href="https://github.com/letmerotinyourarms"> @letmerotinyourarms </a>: ponytowns phosphorus \(>_<)/ 
+</p>
+</p>
 <a href="https://github.com/mandela-net"> @mandela-net </a>: ponytowns Killer!Chance(*´꒳`*)
+</p>
+  </p>
+<a href="https://github.com/Myguiltypleasure"> @Myguiltypleasure </a>: Ponytowns Taph!
 </p>
  </p>
 <a href="https://github.com/monachgrievings"> @monachgrievings </a>: ponytowns Spectre˙˚ʚ(´◡`)ɞ˚˙
@@ -161,10 +170,7 @@ There is only one person updating this account, so please be patient because I c
 </p>
 <a href="https://github.com/viimsey"> @viimsey </a>:   ponytowns John doe (=0_0=)
 </p>
-</p>
-<a href="https://github.com/visionarystatic"> @visionarystatic </a>: ponytowns phosphorus \(>_<)/ 
-</p>
-  </p>
+
 
 ───────── ♡♡♡♡ ─────────
 </p>
