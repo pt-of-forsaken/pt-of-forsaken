@@ -101,7 +101,8 @@ There is only one person updating this account, so please be patient because I c
 </p>
 <a href="https://github.com/dr-vanta"> @dr-vanta </a>:  Ponytowns Soldier ꉂ(ˊᗜˋ*)♡
 </p>
-  href="https://github.com/demonbell3"> @demonbell3 </a>: ponytowns Jane doe :)
+</p>
+<a  href="https://github.com/demonbell3"> @demonbell3 </a>: ponytowns Jane doe :)
   </p>
 <a href="https://github.com/Flowersan02"> @Flowersan02 </a>: ponytowns Elliot (^o^)
 </p>
