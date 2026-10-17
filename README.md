@@ -5,7 +5,7 @@
 <div align=center>
   Hello! welcome to my forsaken nomination account, this is inspired by the other nominations accounts and by <a href="https://github.com/forsakentown"> @forsakentown </a> !! i am only doing forsaken characters or/and ships and etc, strawpage has more info! 
 There is only one person updating this account, so please be patient because I can be busy/slow and I have school..
-<div align=center > [created: 09/13/26] [updated: 10/09/26]
+<div align=center > [created: 09/13/26] [updated: 10/17/26]
 
   my apologies if i make any mistakes,, coding and putting everything on here gets confusing for me.
 </p>
@@ -101,6 +101,7 @@ There is only one person updating this account, so please be patient because I c
 </p>
 <a href="https://github.com/dr-vanta"> @dr-vanta </a>:  Ponytowns Soldier ꉂ(ˊᗜˋ*)♡
 </p>
+  href="https://github.com/demonbell3"> @demonbell3 </a>: ponytowns Jane doe :)
   </p>
 <a href="https://github.com/Flowersan02"> @Flowersan02 </a>: ponytowns Elliot (^o^)
 </p>
