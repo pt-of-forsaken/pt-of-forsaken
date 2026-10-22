@@ -54,6 +54,7 @@ There is only one person updating this account, so please be patient because I c
   </p>
 <a href="https://github.com/M1s0thefox"> @M1s0thefox </a>:  #1 Telafioso shipper(๑˃̵　ᴗ　˂̵)
   </p>
+</p> href="https://github.com/N0VALIT3"> @N0VALIT3 </a>:#1 voidpizza shipper!
 <a href="https://github.com/seildirectory"> @seildirectory </a>: #1 charlatanxvee shipper(comedyshow)
 </p>
   </p>
