@@ -104,7 +104,7 @@ There is only one person updating this account, so please be patient because I c
 <a href="https://github.com/Cuddling-Encouraged-heavily-Dnc"> @Cuddling-Encouraged-heavily-Dnc </a>: ponytowns 1x4(≧∇≦)/
 </p>
    </p>
-<a href="https://github.com/dearvoidstar"> @dearvoidstar </a>: pts Noli !
+<a href="https://github.com/dearvoidstar"> @dearvoidstar </a>: ponytowns Noli !
 </p>
 </p>
 <a href="https://github.com/dr-vanta"> @dr-vanta </a>:  Ponytowns Soldier ꉂ(ˊᗜˋ*)♡
