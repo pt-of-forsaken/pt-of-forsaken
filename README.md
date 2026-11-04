@@ -192,5 +192,8 @@ There is only one person updating this account, so please be patient because I c
 <a href="https://github.com/HeightsSwordMaster"> @HeightsSwordMaster </a>:  Shedletsky's fan!
 </p>
     </p>
+<a href="https://github.com/NikaMokochi"> @NikaMokochi </a>: ponytowns Pizza guy from pizza game beta!
+</p>
+    </p>
 <a href="https://github.com/AdiosT0reador"> @AdiosT0reador </a>: #1 Elliot lover !
 </p>
