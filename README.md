@@ -128,7 +128,7 @@ There is only one person updating this account, so please be patient because I c
 <a href="https://github.com/itrap-2245"> @itrap-2245 </a>: ponytowns Itrapped (๑•ᴗ•๑)♡
 </p>
 </p>
-<a href="https://github.com/Jeverus"> @Jeverus </a>:  ponytowns Slasher and pre-forsaken Slasher!(〃ﾟ3ﾟ〃)
+<a href="https://github.com/Jeverus"> @Jeverus </a>:  ponytowns Slasher/pre-fskn Slasher and Crazyblox 1x1x1x1(〃ﾟ3ﾟ〃)
 </p>
 </p>
 <a href="https://github.com/kniferrific"> @kniferrific </a>:ponytowns MrDoombringer(-^〇^-)
